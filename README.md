@@ -5,3 +5,7 @@ Best to worst
 2. 48 (Japopeno tofo) ?
 4. 46 (tasty veggie meat thingy) 
 3. 49 ?
+
+
+# Kyle
+Number of times getting Mama's clay pot: 5
